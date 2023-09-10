@@ -1,2 +1,2 @@
-# compet
-to share 
+# competition  
+
