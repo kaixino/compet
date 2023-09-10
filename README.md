@@ -1,0 +1,2 @@
+# compet
+to share 
